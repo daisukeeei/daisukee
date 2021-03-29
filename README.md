@@ -1,2 +1,0 @@
-# daisukee
-Daisukeのプロフィール
